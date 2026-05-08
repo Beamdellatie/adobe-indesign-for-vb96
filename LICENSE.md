@@ -1,4 +1,4 @@
-
+Enhance Adobe Illustrator for macOS with Adobe Illustrator for macOS exclusive Action - content-aware fill and smart objects, the #1 action. Includes content-aware fill and smart
 
 
 
